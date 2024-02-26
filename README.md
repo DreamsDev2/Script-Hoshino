@@ -1,0 +1,2 @@
+# Script-Hoshino
+Hoshino Ai
